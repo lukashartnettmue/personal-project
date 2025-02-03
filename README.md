@@ -1,2 +1,2 @@
 # personal-project
-My favorite snack is chips
+My favorite snack is green beans
